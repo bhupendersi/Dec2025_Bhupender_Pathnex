@@ -1,2 +1,2 @@
 
-for learnig 
+for learnig jyg
